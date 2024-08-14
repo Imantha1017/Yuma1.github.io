@@ -1,1 +1,0 @@
-# Yuma1.github.io
